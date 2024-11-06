@@ -1,4 +1,4 @@
-##Here are some prompts you can ask me about Dharam Hinduja School:
+Here are some prompts you can ask me about Dharam Hinduja School:
 
 **About the school:**
 
